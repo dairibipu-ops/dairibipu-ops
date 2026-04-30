@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante do 2 ano do ensino médio, curanso o curso técnico em Desenvolvimento de Sistemas 
+Sou estudante do 2 ano do ensino médio, cursando o curso técnico em Desenvolvimento de Sistemas 
 
 
 ## 🌐 Socials:
